@@ -5,3 +5,5 @@ Follow the directions from the class in this repo.
 Once you've completed a step, check back at the Wheelhouse class to see whether you completed it correctly.
 
 Happy learning!
+Putting in practice time! I need to get me a JOB!!
+Why is this not working????
